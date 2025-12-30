@@ -1,4 +1,4 @@
 
-minor cleanup
-rjxmpeEFwJ5EfIKxYnZNOqbjlvlAiy
-2017-09-22T00:12:40Z
+adjust content
+xRCyZnQYJEtedKV0dhUx9Q1DpXfFUO
+2017-10-05T19:09:01Z
