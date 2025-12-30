@@ -1,4 +1,4 @@
 
-update notes
-XRErhOr9j61CjxjTFSMyszsuCoAP3S
-2019-11-21T01:39:40Z
+refactor text
+NUH8cytZlqsDuLpoUOZX7UW5AcAWDR
+2019-01-20T20:51:57Z
