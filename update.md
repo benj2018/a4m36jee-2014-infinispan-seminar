@@ -1,4 +1,4 @@
 
-quick update
-SFAsRyRGfxoeZYDRhN7C24P8bz7ve7
-2018-07-19T18:13:08Z
+docs tweak
+Il1wR6Nuxhn1C76PFZNzTi2FpW953R
+2018-10-18T03:10:40Z
