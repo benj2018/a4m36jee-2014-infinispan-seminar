@@ -1,4 +1,4 @@
 
-adjust content
-fVcTgiG3ngZ52da58v4cC59uWICYGg
-2017-02-13T13:11:17Z
+docs tweak
+GJW23zzRdo50H1eMGNtTMoiP3GV75D
+2018-08-09T23:06:56Z
